@@ -1,2 +1,4 @@
 # tong-dai-cham-soc-khach-hang-mobifone
 Các đầu số tổng đài của nhà mạng MobiFone hỗ trợ người dùng 24/24
+<p style="text-align: justify;"><a href="https://3gmobifones.com/tong-dai-mobifone"><strong>Tổng đài MobiFone chăm sóc khách hàng</strong></a> sẽ hỗ trợ giải đáp nhanh các thắc mắc đang gặp phải của người dùng khi sử dụng dịch vụ của nhà mạng. Tổng đài hoạt động 24/24 và hoàn toàn miễn phí nên khách hàng có thể liên hệ bất kỳ thời điểm nào để được hỗ trợ. Ngoài ra, MobiFone còn triển khai tổng đài riêng dành cho khách hàng nước ngoài sử dụng dịch vụ của nhà mạng tại Việt Nam với 5 thứ tiếng khác nhau.</p>
+<p style="text-align: justify;">Bên cạnh tư vấn, giải đáp, đăng ký các dịch vụ GTGT, đăng ký 3G/ 4G MobiFone khuyến mãi thì tổng đài Mobi còn tiếp nhận khiếu nại về thái độ phục vụ, chất lượng dịch vụ và góp ý của khách hàng.....Mỗi đầu số tổng đài sẽ có chức năng riêng, bạn nên nắm rõ lựa chọn tổng đài phù để hỗ trợ.</p>
